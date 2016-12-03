@@ -15,7 +15,7 @@ meichun lee, known as mg, is a non-believer of whatever is believed. she is an a
 
 ### Links
 
- * [Blog] (https://hereismglee.wordpress.com/)
- * [FB] (https://www.facebook.com/mg.lee.902)
+ * [Blog](https://hereismglee.wordpress.com/)
+ * [FB](https://www.facebook.com/mg.lee.902)
  
 - - -
